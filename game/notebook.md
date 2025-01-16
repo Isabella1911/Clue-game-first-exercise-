@@ -16,3 +16,4 @@
 
 Location of the crime is still unknown - the room must have been empty when it happened...
 The location of the crime is the town hall offices
+The culprit is the teacher and the murder weapon was the leather gloves
